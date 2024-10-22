@@ -1,5 +1,5 @@
 site_name: Pages
 nav:
-- Home: index.md
-- About: about.md
+- Book 1: book-1/index.md
+- Book 2: book-2/index.md
 
