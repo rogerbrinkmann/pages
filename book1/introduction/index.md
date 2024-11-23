@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Book1
-permalink: /book1/chapter1/section1
+permalink: /book1/introduction
 ---
 # Book 1
 
