@@ -17,8 +17,7 @@ cannot begin another stream of true love from someone other than one man and one
 Adam and Eve had become perfect through God's absolute love and multiplied good descendants,
 they could have realized an ideal family. Everyone in that family would have attended God the
 Creator as their vertical, incorporeal true parent and perfected Adam and Eve as their
-horizontal, substantial true parents on earth.
-
+horizontal, substantial true parents on earth.  
 Adam and Eve's true family would have expanded into Adam and Eve's clan. Their clan would
 have prospered, expanded into a society and nation, and ultimately built a world that fulfilled
 God's three great blessings to "be fruitful, and multiply, and have dominion over all things." That
@@ -30,14 +29,12 @@ dual characteristics of masculinity and femininity. It is because God has both o
 God created Adam and Eve. Therefore, Adam and Eve needed to become one as subject partner and
 object partner, as a perfect man and a perfect woman. Had they done so, they would have reached a
 position equal to that of God. Then they would have given birth to sons and daughters and given them the
-same love that God gave them when creating them.
-
+same love that God gave them when creating them.  
 Human beings were God's greatest masterpieces among all created beings. He created them so that they
 could also stand in the position of creating such masterpieces, human beings, as their children. God
 therefore expected Adam and Eve to become completely one as husband and wife. Then, when looking at
 the children born from their perfect union, Adam and Eve would have inherited the tremendous joy that
-God experienced when He created them.
-
+God experienced when He created them.  
 God imbued Adam and Eve with the love that would have enabled them to give birth to children and love
 them with that very love. In other words, Adam and Eve, being God's beloved children, totally received
 every single thing that God, the Absolute Being, had within Him. (053-166, 1972/02/19) 
@@ -46,13 +43,11 @@ every single thing that God, the Absolute Being, had within Him. (053-166, 1972/
 of humanity were to be a substantial manifestation of God. God wanted to enter their minds and become
 one with them in physical form. In that state, even as God wanted to give them more and more, they --
 God and human beings -- would revolve around each other. Spinning like a rotor, they would become
-completely one.
-
+completely one.  
 Had such seeds of love been sown, their descendants, humankind, would have borne the fruit. Then, no
 matter how far you dissected that seed, its core substance would never change. However, because of the
 Fall, that seed needs to be dismantled and repaired; it must be fundamentally repaired, but this is
-impossible unless they bring God back into their lives and attend Him.
-
+impossible unless they bring God back into their lives and attend Him.  
 God created heaven and earth in order to share His life and love. This is why God, the incorporeal One,
 brings forth a man and a woman as the eternal embodiments of His love. They are the True Parents, the
 good human ancestors, whom He now introduces to humanity as the central substance of His love. (038-
@@ -82,8 +77,7 @@ Adam and Eve fell, and humankind became Satan's children. Suppose Adam and Eve h
 instead had become a man and woman imbued with God's heart. They would have joined in holy
 matrimony as God rejoiced over them, and become the True Parents of humankind. Then the created
 world would have united with them in harmony, and joyfully provided their family with everything they
-needed.
-
+needed.  
 Had Adam and Eve become a true son and daughter before God, had they become a true husband and
 wife as the model for all human beings, and had they become the True Parents of humankind who could
 attend God as their eternal Parent, they would have been able to sing with joy and happiness throughout
@@ -94,14 +88,12 @@ would have been God. (009-137, 1960/05/01)
 6. The Fall disrupted Adam's family. Therefore, the goal of restoration, to return to the original state
 before the Fall, is to restore Adam's family. God first strives to recover one individual who will be His
 partner; then he strives to recover one central family. Only after that can He strive to recover a church, a
-people, a nation and then the world.
-
+people, a nation and then the world.  
 Throughout history, God has been seeking a family that could become His ideal object partner. Such is
 the True Family. The True Family is fundamentally different in substance from ordinary families. Unless
 that God-centered family can be recovered and aligned with God's ideal, there is no way to recover the
 ideal for the nation or the world. This is the reason that God must first establish the original True Family.
-Similarly, salvation cannot be attained by individuals; rather, the basic unit of salvation is a true family.
-
+Similarly, salvation cannot be attained by individuals; rather, the basic unit of salvation is a true family.  
 Had it not been for the Fall, Adam and Eve would have become the ideal husband and wife and, one-step
 further, the True Parents. They would have become the True Parents to their posterity and all humankind.
 Had humanity prospered with Adam and Eve as the True Parents, they would have built one great family
@@ -131,12 +123,10 @@ humankind to the original world. Such is the course of the providence. (267-297,
 9. God's hope is not for the Lord to return on the clouds in the sky and build a spiritual kingdom like a
 fantasy world. The reason he returns is to plant his feet on the ground and find the one Bride who can
 receive God's total love. He does this work to recover all that was lost because 6,000 years ago the first
-human ancestors became the false ancestors.
-
+human ancestors became the false ancestors.  
 Therefore, in the course of history, a perfect woman must emerge who is absolutely connected to God's
 love. She must join with the perfect man who lives in oneness with God's love. She is able to stand as the
-Bride of the Returning Lord, who comes as the Bridegroom. That time is at hand.
-
+Bride of the Returning Lord, who comes as the Bridegroom. That time is at hand.  
 When they unite in this position, they are at the level of Adam and Eve before the Fall, when they were
 loved by God in the Garden of Eden. They have reached the point to receive from God the three great
 blessings. With them emerges the foundational point on earth that Satan cannot invade. Had Adam and
@@ -150,8 +140,7 @@ nation and the world. The culture would have been Adam's culture. From that cult
 have begun. Thus, everything would have developed and prospered. Accordingly, all the events that
 connect to True Parents can become sources for creating a new culture. From this new culture, a true
 history of humankind can finally unfold. True families, societies, peoples, nations and a true world can
-emerge.
-
+emerge.  
 The teachings that True Parents have established as the tradition will be central in every age. Thus far,
 human beings have based their hope for the world in a vision of the future, but no longer. Rather than
 looking forward to something yet to be realized, we will advance centering on the teachings that True
@@ -167,8 +156,7 @@ of good and evil that grew in the Garden of Eden. These two trees symbolize the 
 and mother. Originally, the human ancestors, Adam and Eve, perfect and having nothing to do
 with the Fall, were to have been the roots of humankind. Having grown from those roots, all
 people were destined to live in the kingdom of heaven on earth. After death, they would have
-passed on to the kingdom of heaven in heaven and lived there eternally.
-
+passed on to the kingdom of heaven in heaven and lived there eternally.  
 God's purpose of creation is for humanity to form a single God-centered family, in which all
 would be kin. Fallen human beings are wild olive trees, stemming from wild roots. They need to
 receive a graft from the true olive trees, True Parents, and be reborn as true human beings. By so
@@ -183,8 +171,7 @@ Parents' family, which they established after their Holy Wedding, the true olive
 fallen world are false olive trees. Then, if we make a cut in a false olive tree and graft a cutting from a
 true olive tree onto it, it will eventually belong to the family of the true olive trees. This will connect
 people to God's true love, true life, true lineage and true conscience, and they can reach perfection. When
-they do, the kingdom of heaven on earth and in heaven will unfold.
-
+they do, the kingdom of heaven on earth and in heaven will unfold.  
 God could not have His third generation, His grandsons and granddaughters. Satan has them and even has
 tribes of his own; they have multiplied to this day and built numerous countries. God, on the other hand,
 has never had even one perfect man or one perfect woman. The Messiah is the one who comes as the
@@ -213,8 +200,7 @@ false love and false lineage. We must build God-centered true families in the or
 Fall. To build families of true sons and daughters, we need to connect to the true lineage. To become True
 Parents' children, we must connect to their lineage. The parent-child relationship, or the father-son
 relationship, is absolutely impossible without the bond of blood. Not even God can sever that bond. Nor
-can Satan do it.
-
+can Satan do it.  
 For this reason, to usher in the Completed Testament Age we must receive the marriage Blessing of True
 Parents. That way we can restore through indemnity the failures of the Old and New Testament Ages.
 You were an orchard of false olive trees, but now you must become an orchard of true olive trees by
@@ -227,8 +213,7 @@ families, true tribes, true peoples, the true nations, the true world, the kingd
 kingdom of heaven in heaven, finally even liberating God. True Parents stand in the position to fulfill
 everything on every level. They are the most precious beings that God ever sent to this world. When you
 follow them with absolute faith, absolute love and absolute obedience, you are certain to overcome any
-obstacle.
-
+obstacle.  
 True Parents bequeath true love, true life and true lineage. As children, we inherit these. The purpose of
 all religions is to lay the foundation on earth to inherit True Parents' accomplishments. Salvation cannot
 be accomplished without a connection to true love, true life and true lineage. The world is fallen because

@@ -13,8 +13,7 @@ permalink: /book1/chapter1/section2
 God's hope for Adam and Eve was that they would grow, reach perfection and form a true family.
 This is what He originally intended at the time of the Creation. God created Adam as His only
 begotten Son and Eve as His only begotten Daughter. With absolute love, He invested everything
-in them, and in them, He placed all His hopes.
-
+in them, and in them, He placed all His hopes.  
 However, they fell; so in their place God sent Jesus as His only begotten Son. According to the
 order in which He had created Adam and Eve, God planned to restore Adam first and then to
 restore Eve through Adam. Hence, first God sent Jesus as the Second Adam to take the place of
@@ -41,8 +40,7 @@ begotten Daughter first needed time to grow until they were fully mature. (159-1
 Daughter. Jesus was to embark on the path to save the world, but he could not do it alone. He needed to
 establish his family as the foundation. Jesus' purpose in claiming to be God's only begotten Son was to
 unite the world and reign over it. Yet, before he could do so, he first had to form a family of his own.
-However, he could not do that in his lifetime.
-
+However, he could not do that in his lifetime.  
 Therefore, in order for the Messiah to save humankind on earth, he must form a model family for others
 to emulate. Jesus needed to have a family before he could try to save Israel. Jesus was God's only
 begotten Son. I am sure that if Jesus' wedding had taken place, God would have been its officiator. The
@@ -54,16 +52,14 @@ lost and must be recovered. (159-192, 1968/05/10)
 
 4. The title "God's only begotten Son" was finally fulfilled after Jesus came to earth. For the first time
 since Adam and Eve failed and human history was lost to Satan, God's only Son, born of His lineage,
-lived on earth. This was Jesus, the man who received God's love.
-
+lived on earth. This was Jesus, the man who received God's love.  
 Yet, even though Jesus emerged as God's only begotten Son, the only begotten Daughter did not appear.
 The emergence of God's perfected only begotten Son after 4,000 years of the history of salvation was as if
 God had created Adam again. In the Garden of Eden, God created Eve, modeling her after Adam. He
 made her based on the same principle and blueprint He employed when creating Adam, so that she could
 be his partner. When it states in the Bible that the woman was made from Adam's rib, it means that God
 created her with the essence of Adam. That is why perfected Adam, God's only begotten Son, can recover
-Eve, the one who has been lost to this day.
-
+Eve, the one who has been lost to this day.  
 In Jesus, God found the Adam who could establish His direct lineage of true love, but He was not yet able
 to find Eve. In order to find Eve, fallen human history had to be rectified within a family, and a nation had
 to be engrafted with that family. Preparation for this began with Jacob, from whom emerged the 12 tribes
@@ -74,20 +70,17 @@ both of which were prepared for the coming of Jesus. (347-171, 2001/07/04)
 5. Jesus called fallen human beings to become God's sons and daughters, but what was most remarkable
 was that he proclaimed himself God's only begotten Son. In a world where humanity had been paying
 indemnity continually over thousands of years of history, this concept -- God's only begotten Son -- was a
-sensation.
-
+sensation.  
 What Jesus had to do next was to change the human lineage by reversing the positions of Cain and Abel
 between himself and Judaism, and between himself and the nation of Israel. However, he was not able to
 do that. Hence, although he recovered the title of God's only begotten Son, he was not able to meet God's
-only begotten Daughter.
-
+only begotten Daughter.  
 That woman had been prepared, but it was not possible for Jesus to meet her without a tribal level
 foundation. Beginning from Jesus' family, links connecting the individual to the family and the tribe had
 to be established, so that the lineage of humankind eventually could be changed. (164-256, 1987/05/17)
 
 6. Four thousand years after the first human ancestors, God's only begotten Son in all of heaven and earth
-was born. This was blessed news. Before that, people had no way to connect with the bond of Godcentered true love. This has been the cause of bitter sorrow in people's hearts.
-
+was born. This was blessed news. Before that, people had no way to connect with the bond of Godcentered true love. This has been the cause of bitter sorrow in people's hearts.  
 Now, God's only begotten Son has appeared on earth! He has come as an intermediary for humankind, to
 dissolve that bitter sorrow. Had he not appeared, it would have been a serious matter. There can be no
 greater blessing than his coming. Therefore, all humankind and all of heaven and earth must be on his
@@ -101,8 +94,7 @@ horizontal line, it creates a 90-degree angle where the two lines meet. Man is p
 degree angle to the vertical; woman is likewise positioned at a 90-degree angle; and the point where man
 and woman meet is at that same angle. There cannot be two different angles. The only begotten Son is the
 first man in human history to receive God's love at a 90-degree angle. Someone must stand with him as
-God's only begotten Daughter.
-
+God's only begotten Daughter.  
 The Messiah, who comes as the only begotten Son, must find the only begotten Daughter. Finding her is
 not a casual matter. Since God created Eve from the body of Adam, when the Messiah comes into the
 world he must find his Eve. He is the one who must recover Eve, because Eve was taken by Satan. Thus
@@ -115,8 +107,7 @@ Daughter are one. (185-186, 1989/01/08)
 Him on their own. He has sought the path to free them from Satan's accusation. Can you fathom how
 miserable God must have been? Can you even imagine His situation in the world where Satan played
 king? He endured pain and suffering beyond description so that Jesus Christ could be born free from
-Satan's accusation.
-
+Satan's accusation.  
 Finally Jesus came. If the people of Israel had only united with Jesus, God's only begotten Son, they could
 have reached beyond Rome and out to the world. Then Jesus could have become the True Parent. Instead,
 because Judaism and the people of Israel were unable to fulfill their responsibility, Jesus departed with
@@ -124,8 +115,7 @@ the promise that he would return.
 Tragically, although after 4,000 years God had found and established His only begotten Son, He could not
 similarly establish His only begotten Daughter at that time. Nevertheless, since the only begotten Son
 exists, the only begotten Daughter must also exist. The providence led by Jesus and the Holy Spirit was
-for this purpose.
-
+for this purpose.  
 We learned from the Divine Principle that whenever the central persons or central nations fail to fulfill
 their responsibility, God finds another representative to complete the task. Thus, when God was unable to
 send His only begotten Daughter to Israel on account of its not fulfilling its responsibility, God raised His
@@ -136,8 +126,7 @@ love, living on earth. That family lives in God's original homeland, and it expa
 nation and world of the original homeland. That is how the kingdom of heaven will finally unfold on
 earth. All humanity longs for the original homeland, with its citizens in the original, perfected spiritual
 state. God, too, longs for this. There, heaven and earth will meet in harmony. Everything in the universe
-will rejoice in happiness. God will dance and the whole creation will dance together with Him.
-
+will rejoice in happiness. God will dance and the whole creation will dance together with Him.  
 If such an original homeland, a place that all human beings would welcome, had emerged on earth, the
 world we live in would not be filled with pain and grief. Had Adam and Eve been a son and daughter who
 centered on God, namely, God's only begotten Son and Daughter, and had they become totally one with
@@ -151,8 +140,7 @@ his own family. The ideal world, the earthly kingdom of peace, begins with one t
 established through an assemblage of many true families. Individuals immersed in mind-body conflicts
 cannot build an ideal family. Therefore, even if Jesus had the power to conquer the world, he could not
 abandon the way of heaven that had called him to raise the family that God desired, even though this
-brought him to the point of death.
-
+brought him to the point of death.  
 As God's only begotten Son whose mind and body were united, Jesus was to receive God's only begotten
 Daughter, whose mind and body were also united, and together they were to establish that family.
 Without that family, even if the world had been transformed it would be lost again in the end. The family
@@ -162,15 +150,13 @@ will constitute the one people of God. (023-152, 1969/05/18)
 11. Jesus' purpose in coming again to earth is to find his Bride, a woman who is centered on God's love.
 That woman must represent Christianity, attend the Lord as her Bridegroom on the world-level stage of
 Christianity, and marry him. This establishes the realm of love of the Bridegroom and Bride. It is the
-beginning of a realm of love that God can finally claim.
-
+beginning of a realm of love that God can finally claim.  
 Based on the realm of the only begotten Son, God can claim the realm of the only begotten Daughter. At
 the same time, centering on this only begotten Son and only begotten Daughter, He can inaugurate the
 realm of love of the Bridegroom and Bride. For the only begotten Son and the only begotten Daughter, it
 does not matter how large their nation is, or that it has a long history or an amazing cultural background.
 What matters is that their standard of conjugal love is such that they unite as husband and wife centering
-on God.
-
+on God.  
 The first human beings lost this standard due to the Fall. Hence, without recovering it, everything in the
 world is in vain. Therefore, the only begotten Son and the only begotten Daughter on God's side must
 establish the realm of conjugal love as husband and wife. Once the realm of conjugal love is secured, the
@@ -178,8 +164,7 @@ realm of children's love will naturally be established. (138-257, 1986/01/24)
 
 12. Jesus said that he was God's only begotten Son, and that God was his Father. That claim indicates that
 as an individual he had received God's first love. Although God came to have His only begotten Son,
-Jesus, He did not yet have His only begotten Daughter. Jesus was unable to find her.
-
+Jesus, He did not yet have His only begotten Daughter. Jesus was unable to find her.  
 Thus, Jesus must return to meet God's only begotten Daughter, who can totally receive God's first love.
 That is why the Lord at his Second Advent must celebrate the Marriage Supper of the Lamb. That is, he is
 required to marry. This man who completely receives God's first love must marry a woman who
@@ -188,12 +173,10 @@ unfallen Adam and Eve. (041-311, 1971/02/17)
 
 13. The Messiah comes in the position of the original and direct Son of God. With God's absolute love, he
 brings the seed of life. To find and raise such a Son is God's primary purpose for conducting the
-providence of salvation through history.
-
+providence of salvation through history.  
 The Messiah comes to earth with nothing of earthly value. He has no nation. He has virtually nothing. He
 does not have a partner. Because Eve, Cain and Abel were lost, he does not have a family. That is why,
-when he comes, he has to recover them all.
-
+when he comes, he has to recover them all.  
 Christianity is the bride religion and is to receive the Messiah who comes as its Bridegroom. The core
 truth of Christianity is amazing. Jesus called himself God's only begotten Son. Adam was intended to be
 God's only begotten Son, and Eve was intended to be God's only begotten Daughter. However, due to the
@@ -204,16 +187,14 @@ God must re-create Eve by the seed that He sends through the new Son of God. (28
 14. Human beings start from a family. A family begins with a man and a woman becoming husband and
 wife. Therefore, for the original family to begin, the only begotten Son must marry the only begotten
 Daughter. The only begotten Son and Daughter were to have been the original Adam and Eve, free from
-the Fall. Then they were to become True Parents and give birth to sons and daughters.
-
+the Fall. Then they were to become True Parents and give birth to sons and daughters.  
 As people who attend True Parents, if you want your sons and daughters to be perfected, you need to
 provide them with an environment in which they learn how to live for the sake of others in the four
 directions. These are represented by their grandfather, grandmother, father and mother. Children are to
 live for the sake of their parents. Parents are to live for the sake of their children and also for the sake of
 their own parents. Grandparents are to live for the sake of their grandchildren, and grandchildren are to
 live for the sake of their grandparents. A husband is to live for the sake of his wife, and a wife is to live
-for the sake of her husband.
-
+for the sake of her husband.  
 In this kind of environment the grandfather and grandmother, husband and wife, and all the siblings are
 included. Following this principled model of the family, we should build a family in which we live for the
 sake of each other. If we do so, this will indeed bring about the kingdom of heaven in our family. (252-
@@ -224,21 +205,18 @@ Adam and Eve, the first ancestors of humanity, fell when they succumbed to Satan
 They ate of the fruit of the tree of the knowledge of good and evil, thus committing the original
 sin. The original sin was an illicit sexual relationship. This sin defiled God's lineage. Instead of
 passing down God's love through the ensuing generations, they multiplied descendants through
-Satan's false love.
-
+Satan's false love.  
 In the Bible, the Gospel of Matthew records the genealogy of Jesus Christ. It preserves a record
 of how in his lineage, among the descendants of the fallen Adam, good and evil were separated
 and goodness advanced. It records how, during the 4,000-year history of the providence of
 restoration through indemnity, the blood connection to Satan was severed in that lineage, in
-order that Jesus could be born as God's only begotten Son.
-
+order that Jesus could be born as God's only begotten Son.  
 Thus, Jesus at birth had nothing to do with original sin. He came to this world to receive his
 Bride and become the True Father, so that they could take the position of True Parents. They
 were to give birth to children free from original sin, and also to give rebirth to fallen human
 beings and remove their original sin. Instead, however, Jesus died on the cross due to the
 disbelief of the people of Israel. Still, he left with the promise that he would come again and
-complete the work he had left unfinished.
-
+complete the work he had left unfinished.  
 Therefore, the Returning Lord, who comes as the Third Adam, inherits Jesus' foundation. This
 allows him to start out from the position of the Messiah and from there to attain the position of
 the True Parent. When he does so, he can fulfill the mission of completing God's ideal of creation.
@@ -262,8 +240,7 @@ original Adam. (159-206, 1968/05/10)
 with his mother, Rebekah, to deceive his father as well as his older brother, Esau. We also read the story
 of Tamar, who had sexual relations with her father-in-law, Judah, and gave birth to the twins Perez and
 Zerah; it concludes with Perez and Zerah becoming the center of blessing for Judah's tribe. These stories
-describe behavior that contradicts conventional morality. So why are they in the Bible?
-
+describe behavior that contradicts conventional morality. So why are they in the Bible?  
 Besides, in the first chapter of Matthew, we read of four women of questionable morals: Tamar,
 Bathsheba, Rahab and Ruth. The Gospel of Matthew in the New Testament is equivalent to Genesis in the
 Old Testament. Why do these blemished, unholy women appear in its first chapter? There is no way to
@@ -284,8 +261,7 @@ like Tamar, who, with utter devotion and loyalty to God, willingly took whatever
 order to bring God's precious lineage into the world. When the angel Gabriel appeared to Mary and
 foretold that she would soon conceive a child, Mary said, "How shall this be, since I have no husband?"
 And when the angel said, "With God, nothing will be impossible," Mary answered, "Behold, I am the
-handmaid of the Lord; let it be to me according to your word." (from Luke 1:34-38)
-
+handmaid of the Lord; let it be to me according to your word." (from Luke 1:34-38)  
 Mary could not take that position without risking her own life. In accordance with the five books of
 Moses, at that time, an unmarried woman who became pregnant should be stoned to death. Nevertheless,
 God had Mary give birth to Jesus, because she placed God's Will above her life and her honor. Thus, for
@@ -295,8 +271,7 @@ accordance with God's Will. (035-222, 1970/10/19)
 20. Satan could not make any accusation against Jesus in Mary's womb because Mary did not seek to give
 birth to Jesus. On the contrary, she simply obeyed the command of God and lived for His Will. Not only
 that: Mary set up a victorious foundation from beginning to end, from conception to birth, so that Jesus
-could be born from her womb free of accusation.
-
+could be born from her womb free of accusation.  
 Ever since the tragic history of Adam and Eve, the basis of all the struggles of humankind had their
 beginning in the womb. Finally, with Mary, a child inside the womb was separated from that basis. Such
 was the lineage into which Jesus was born. Therefore, at the root Jesus is different from any other
@@ -323,8 +298,7 @@ conceived Jesus. She conceived him based on the foundation of Israel's history, 
 the tradition of Tamar's heart. Mary paid the indemnity of heart and, by doing so, rectified the mistake of
 Eve. She stood among those women of Israel whose course was to bear sons dedicated to the change of
 lineage. She conceived Jesus based on the completion of the restoration of the elder son. For these
-reasons, from the time of his conception, Satan could not claim Jesus as his son.
-
+reasons, from the time of his conception, Satan could not claim Jesus as his son.  
 From the moment of his conception in Mary's womb, Jesus stood on the foundation of a lineage that was
 already purified through this process in history. Hence, Satan could not claim Jesus as his son, even
 though Jesus was conceived with the authority of the elder son that Satan had always coveted. God could
@@ -337,8 +311,7 @@ restored the authority of the elder son centered on love, he could be the Messia
 23. Jesus came to earth based on the foundation of a process to purify the lineage. The change of lineage
 was attained in the time of the twins: first, by Jacob's efforts with Esau to restore the right of the elder son
 and then by Perez and Zerah, who fought in the womb of their mother, Tamar, and reversed the positions
-of the older and the younger.
-
+of the older and the younger.  
 This is recorded in the Bible. The Bible is revelatory. It is a book of treasures that can never be left out of
 the history of culture, religion or the world. Hidden within it are the sagas and secrets of human history,
 and matters to be untangled. These must be resolved. That is why we must restore the lineage. Jesus, who
@@ -353,8 +326,7 @@ failure to reach perfection that Adam and Eve became the false parents, True Par
 stand in their place, in the position of having perfected themselves centering on God.
 Originally, God's ideal at the time of the Creation was for Adam and Eve to reach perfection and become
 the True Parents. That position must be rectified and the original ideal must be attained. I am the one who
-is pursuing that ideal.
-
+is pursuing that ideal.  
 In the Unification Church, people call us True Father and True Mother. In external appearance there is no
 difference between us and you; however, our root, our origin, is different from yours. The True Parents
 emerged with God as the root, the first such human beings in history. We have come as the central people
@@ -372,8 +344,7 @@ blessed. (054-270, 1972/03/25)
 is because human beings are connected to Satan's lineage. How can we deny it? The way to resolve this is
 to follow the course of indemnity. Now we, True Parents, have paid off everything. We paid indemnity on
 all levels -- the individual, family, tribe, people, nation, world and cosmos. We indemnified them all, and
-thereby connected them all to the true lineage of God.
-
+thereby connected them all to the true lineage of God.  
 This means you are now in the position of small messiahs. As True Parents, we belong to the lineage of
 God, not to Satan's lineage. Our root is different from yours. Your roots are on the side of Satan, while
 our root, the root of the Parents, is with God. As True Parents, we inherited God's original love, which is
@@ -382,16 +353,13 @@ who belong to God. (146-302, 1986/07/20)
 
 27. I, True Father, gained victory over Satan's world by going through eight vertical stages, from servant
 of servants to servant, adopted child and so on, and eight horizontal stages, from individual to family,
-tribe, people, nation, world, cosmos and God.
-
+tribe, people, nation, world, cosmos and God.  
 When Adam committed the original sin, he entered Satan's realm. He can return to his original position
 only when that sin is removed. However, he cannot clear original sin by himself. Only True Parents can
-do it, with true love. That is what I did, clearing it on all eight stages.
-
+do it, with true love. That is what I did, clearing it on all eight stages.  
 Adam fell at the age of 16. Before he reached that age, he was the original Adam. Before the Fall, he was
 an original young man heading for perfection, who could have inherited everything from God. I came as
-the Lord at the Second Advent to inherit everything that he could not.
-
+the Lord at the Second Advent to inherit everything that he could not.  
 I fought Satan at every stage -- individual, family, tribe, people, nation, world and cosmos -- and expelled
 Satan from each. I resolved the fundamental problem of sin. I am saying that I have uprooted original sin.
 Beginning at the age of 16, I took the position of victorious Adam, having nothing to do with the world of
@@ -422,8 +390,7 @@ Due to his death on the cross, caused by disbelief among the people, Jesus was u
 complete the path of the True Parent on earth. After his resurrection, therefore, Jesus had to find
 a spiritual Bride; this was none other than the Holy Spirit. Then, with Jesus as the spiritual True
 Father and the Holy Spirit as the spiritual True Mother, they could carry out the providence of
-salvation in a limited way, by giving spiritual rebirth to fallen human beings.
-
+salvation in a limited way, by giving spiritual rebirth to fallen human beings.  
 In order to complete the providence of salvation both spiritually and physically, Jesus needs to
 come again. Therefore, Jesus at his Second Coming needs to be born on earth in the flesh as the
 Lord at the Second Advent, the Third Adam. Then he needs to receive as his Bride, the woman
@@ -436,8 +403,7 @@ opening the way to complete salvation in spirit and flesh.
 the Second Adam. Since the first human ancestors were lost, Jesus had to restore the true ancestor. Thus,
 Jesus came as the True Father of humankind, and the Holy Spirit came as the True Mother of humankind.
 Thus, they established the True Father and the True Mother, spiritually. God's purpose for the Second
-Advent is to manifest True Parents on earth substantially.
-
+Advent is to manifest True Parents on earth substantially.  
 The Last Days are the time when God's True Son and True Daughter emerge to stand in front of
 humankind. Human beings lost their true ancestors and became fallen descendants, disconnected in their
 lineage from True Parents. Hence, the Last Days are the time for the True Parents to recover the
@@ -445,8 +411,7 @@ descendants who were lost, by reversing the course of the Fall. (007-116, 1959/0
 
 32. Jesus, the center of Christianity, is the Bridegroom. He receives his Bride at the Marriage Supper of
 the Lamb. The Marriage Supper of the Lamb refers to the wedding of two human beings in the flesh: a
-man and a woman in the positions of Jesus and the Holy Spirit.
-
+man and a woman in the positions of Jesus and the Holy Spirit.  
 For Christians, God is the Father and Jesus is the Son. The Holy Spirit is the mother spirit. Thus, by
 receiving the Holy Spirit we are reborn. We must be given rebirth by the Holy Spirit. Human beings are
 born through their parents' unity in love. This is natural law. Jesus is the father; the Holy Spirit is the
@@ -459,8 +424,7 @@ then infuse you with new life. This is what Christianity calls rebirth. (019-202
 humankind, we are the descendants of false parents. For this reason, the Messiah must come as the True
 Parent. More precisely, he is the True Father. Christianity speaks about the Trinity. In fact, Jesus is the
 True Father and the Holy Spirit is the True Mother. That is why human beings can be reborn through
-them. Children cannot be born unless their parents first make love.
-
+them. Children cannot be born unless their parents first make love.  
 Hence, it says in the Book of Revelation, "The Spirit and the Bride say, ‘Come.' And let him who hears
 say, ‘Come.' And let him who is thirsty come, let him who desires take the water of life without price."
 (Rev. 22:17) This speaks to the day when the Holy Spirit comes in the flesh at the time of the Second
@@ -483,8 +447,7 @@ we were born from false love, we need the mother spirit to give birth to us agai
 came as the embodiment of the Holy Spirit. Had he received that woman who embodied the Holy Spirit,
 he could have worked freely on the horizontal level. However, Jesus was able to set this condition only
 spiritually, because his three core disciples failed to meet the standard of becoming his sons. This was
-Jesus' bitter sorrow.
-
+Jesus' bitter sorrow.  
 Since people on earth were not able to make an adequate indemnity condition, Jesus had to ascend to
 heaven prematurely. Man represents heaven and woman represents earth. Jesus, the True Father of
 humankind, has been in heaven. The Holy Spirit is the True Mother of humankind. Therefore, the Holy
@@ -494,8 +457,7 @@ the time of Jesus, and that Will could not be fulfilled. (023-176, 1969/05/18)
 36. The kingdom of heaven is a place where men and women enter together with their families. However,
 when Jesus came to earth he could not find his Bride, and he died without being able to have children.
 Hence, to this day he remains in Paradise, where for 2,000 years he has been praying and working
-through the Holy Spirit.
-
+through the Holy Spirit.  
 In the beginning, a woman first committed sin. Therefore, the Holy Spirit, a feminine spirit, must come to
 the world as an actual woman and cleanse that sin. This will happen when Jesus comes again to the world
 as the Bridegroom and furnishes the new seed. Through reviving Jesus' mission, God's purpose is to build
@@ -504,14 +466,12 @@ that world becomes manifest, we can say that God's Will has been fulfilled as pl
 1968/11/20)
 
 37. The Holy Spirit that Christianity speaks of actually refers to the mother spirit, the Second Eve. Since
-Eve, the mother of all human beings, fell, God sent the Holy Spirit, the mother spirit, as the Second Eve.
-
+Eve, the mother of all human beings, fell, God sent the Holy Spirit, the mother spirit, as the Second Eve.  
 If we find a hole in a wall, we have to fill it in. If we lose something, we have to look for it where we lost
 it. Likewise, since it is because of Eve that all human beings on earth entered the realm of death, we need
 the Holy Spirit to come to earth and labor to give birth to us again. In the Bible, we read that women can
 be saved through giving birth. (I Tim. 2:15) This does not refer to women living on earth today, but to
-Eve.
-
+Eve.  
 Had Eve not fallen but become the true ancestor of humankind, she would have given birth to good
 children. Instead, she fell and gave birth to Satan's children. Therefore, the Holy Spirit embraces
 humankind and labors to give them rebirth. Only when that labor is finished will Eve be saved and the
@@ -576,8 +536,7 @@ through three generations. True Mother went through such a course. She inherited
 Holy Lord Church, where she received the blessing of Rev. Kim Seong-do, who was in the position of the
 First Eve. Following that, she also gained the foundation of the Inside the Womb Church, where she
 received the blessing of Rev. Heo Ho-bin, who was in the position of the Second Eve. It was Daemonim
-who made this possible.
-
+who made this possible.  
 In accordance with the law of restoration through indemnity, having gone through that course, Mother
 was responsible to stand on that victorious foundation and attend the Returning Lord. The reason Jesus
 could not marry was because the proper condition had not been established according to the law of
@@ -592,13 +551,11 @@ throughout the world. They subjugated even Satan by establishing the realm of li
 world, connected to the realm of liberation on earth. (333-015, 2000/09/24)
 
 46. Now that the True Parents have emerged on earth, Jesus is united with True Father and the Holy Spirit
-is united with True Mother.
-
+is united with True Mother.  
 Jesus' mother, Mary, and John the Baptist's mother, Elizabeth, did not cooperate with each other; this was
 a contributing cause of Jesus' death. At that time, the entire nation of Israel and all the leaders of Judaism
 should have joined together to support Jesus, and in particular, they should have found Jesus' Bride. Then,
-Jesus and his Bride could have given rebirth to humankind.
-
+Jesus and his Bride could have given rebirth to humankind.  
 What could not be done in Jesus' time on the national level must be indemnified, this time on the worldlevel stage. It is True Mother's work to reach the world level; then the work must be expanded
 horizontally. That is why Mother is traveling and being proclaimed throughout the world. It is because
 every human being must return to True Mother's womb and become one with True Father, like the joining
@@ -608,8 +565,7 @@ of ovum and sperm, and be reborn. (235-252, 1992/09/20)
 archangels. Therefore, men must unite with True Father, the one in the position of Adam. All the women
 of the world must become second selves of True Mother and unite with True Father from that position.
 By making those conditions, it is as if they have become True Father's original sons and daughters. This is
-how they can be reborn and restored.
-
+how they can be reborn and restored.  
 You need to stand in the position of having been reborn as sons and daughters of True Father. By this, I
 mean that you need to even enter Adam's bone marrow before Adam and Eve were married, and exist
 there as if you are his seed. Then you, as that seed, must connect to Mother through their true love for
