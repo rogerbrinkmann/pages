@@ -1,10 +1,11 @@
 ---
 layout: page
-title: Champumogyeong
+title: Champumo Gyeong
 permalink: /
 ---
 * Preface
 * Book 1: True Parents' Appearance and the Era of True Parents
+    * [Introduction](/book1/introduction/index.md)
     * Chapter 1
         * [Section 1](/book1/chapter1/section1/index.md)
         * [Section 2](/book1/chapter1/section2/index.md)
