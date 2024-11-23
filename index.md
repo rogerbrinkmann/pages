@@ -11,6 +11,12 @@ permalink: /
         * [Section 2](/book1/chapter1/section2/index.md)
         * [Section 3](/book1/chapter1/section3/index.md)
         * [Section 4](/book1/chapter1/section4/index.md)
+    * Chapter 2
+        * [Section 1](/book1/chapter2/section1/index.md)
+        * [Section 2](/book1/chapter2/section2/index.md)
+        * [Section 3](/book1/chapter2/section3/index.md)
+        * [Section 4](/book1/chapter2/section4/index.md)
+        * [Section 5](/book1/chapter2/section5/index.md)
 * Book 2: The Birth of True Parents
 * Book 3: The Beginning of True Father's Public Course and the Founding of HSA-UWC
 * Book 4: Salvation through the Holy Marriage Blessing
