@@ -145,7 +145,8 @@ parents, or the grandchildren lead their grandparents, no one complains because 
 Right there, the realm of unity is formed. Once we have such family relationships structured around a 90-
 degree angle, this creates the foundation for total oneness. There is no waste, no struggle, only peace, for
 all eternity. (204-105, 1990/07/01)
-God's eternal manifestation
+
+#### God's eternal manifestation
 In the original world of creation, Adam and Eve were to reach perfection and unite completely in
 true conjugal love. This would have created the basis for God to dwell within them and take His
 place as the vertical True Parent of humanity. Once Adam and Eve, who resemble the
