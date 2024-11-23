@@ -37,6 +37,16 @@ permalink: /
         * [Section 3](/book2/chapter4/section3/index.md)
         * [Section 4](/book2/chapter4/section4/index.md)
 * Book 3: The Beginning of True Father's Public Course and the Founding of HSA-UWC
+    * [Introduction](/book3/introduction/index.md)
+    * Chapter 1
+        * [Section 1](/book3/chapter1/section1/index.md)
+        * [Section 2](/book3/chapter1/section2/index.md)
+        * [Section 3](/book3/chapter1/section3/index.md)
+        * [Section 4](/book3/chapter1/section4/index.md)
+    * Chapter 2
+        * [Section 1](/book3/chapter2/section1/index.md)
+        * [Section 2](/book3/chapter2/section2/index.md)
+        * [Section 3](/book3/chapter2/section3/index.md)
 * Book 4: Salvation through the Holy Marriage Blessing
 * Book 5: Expansion of the Providential Foundation and the Annual Mottoes
 * Book 6: The World Tours and the Global Mission
