@@ -18,6 +18,7 @@ permalink: /
         * [Section 4](/book1/chapter2/section4/index.md)
         * [Section 5](/book1/chapter2/section5/index.md)
 * Book 2: The Birth of True Parents
+    * [Introduction](/book2/introduction/index.md)
 * Book 3: The Beginning of True Father's Public Course and the Founding of HSA-UWC
 * Book 4: Salvation through the Holy Marriage Blessing
 * Book 5: Expansion of the Providential Foundation and the Annual Mottoes
