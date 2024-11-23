@@ -19,6 +19,23 @@ permalink: /
         * [Section 5](/book1/chapter2/section5/index.md)
 * Book 2: The Birth of True Parents
     * [Introduction](/book2/introduction/index.md)
+    * Chapter 1
+        * [Section 1](/book2/chapter1/section1/index.md)
+        * [Section 2](/book2/chapter1/section2/index.md)
+    * Chapter 2
+        * [Section 1](/book2/chapter2/section1/index.md)
+        * [Section 2](/book2/chapter2/section2/index.md)
+        * [Section 3](/book2/chapter2/section3/index.md)
+    * Chapter 3
+        * [Section 1](/book2/chapter3/section1/index.md)
+        * [Section 2](/book2/chapter3/section2/index.md)
+        * [Section 3](/book2/chapter3/section3/index.md)
+        * [Section 4](/book2/chapter3/section4/index.md)
+    * Chapter 4
+        * [Section 1](/book2/chapter4/section1/index.md)
+        * [Section 2](/book2/chapter4/section2/index.md)
+        * [Section 3](/book2/chapter4/section3/index.md)
+        * [Section 4](/book2/chapter4/section4/index.md)
 * Book 3: The Beginning of True Father's Public Course and the Founding of HSA-UWC
 * Book 4: Salvation through the Holy Marriage Blessing
 * Book 5: Expansion of the Providential Foundation and the Annual Mottoes
