@@ -291,3 +291,50 @@ life while struggling with all kinds of burdens. It is a serious problem. If thi
 never bring about the world of goodness. (199-190, 1990/02/16) 
 
 #### The Myeongsudae church 
+During the time True Father was living in Heukseok-dong, Seoul, he stood against the selfrighteous churches that were administered under the system of Japanese rule. He opposed their
+way of doctrine-based faith. Instead he connected to the Pentecostal church that was leading the
+movement of the Holy Spirit in Korea. After attending that church in Seobinggo, he played a
+pivotal role in founding the Myeongsudae New Jesus Church in Heukseok-dong in the autumn of
+1939.
+Rev. Lee Ho-bin and Rev. Pak Jae-bong from the Pyongyang New Jesus Church frequently visited
+the New Jesus Church in Heukseok-dong and held revivals and Bible study classes. Whenever
+they visited, True Father attended them and deepened his relationship with them. True Father
+taught the students at the Sunday school, giving them his special love. Further, whenever he went
+to Pyongyang during summer vacation, he spoke to the Sunday school students at the Pyongyang
+New Jesus Church.
+25. While attending school, I taught the students who went to the Myeongsudae Church in Heukseokdong; I also did the same at the Seobinggo Church. At that time it was very cold, and at night as we
+crossed the frozen Han River we could hear the plates of ice cracking. It was a frightening sound to hear
+when I was on the river all alone. Nevertheless, I would cross the Han River in order to teach the Sunday
+School students of Seobinggo Church. I taught them about the Bible with much animation, so that it
+would be interesting. I even shed tears. I thought that the students might not like to see me crying, and
+that they might ask me to stop teaching them. Yet they did not want me to stop; instead, they followed me
+around and begged me to teach them more. (187-307, 1989/02/12)
+26. When I was a student, three of my friends and I started the Myeongsudae New Jesus Church in
+Heukseok-dong. I invested every penny of my tuition. There is still a trace of that church even now. I
+remember my evangelizing activities to bring many people to that church, before a new church opened in
+Seobinggo. At the peak of winter the Han River was frozen over, and the cracking sound of its ice was
+loud and terrifying. I have many memories about what I did during that period of Korean history, so filled
+with bitter sorrows. (543-331, 2006/11/07)
+27. I am someone who has offered bows even to very small children. I have attended three-year-old
+children with utmost sincerity, as if they were princes and princesses of heaven. I speak to you now only
+after having made internally and externally a victorious foundation that will be attested to throughout
+history. Part of that foundation was to win the hearts of children. I had to win the hearts of people from
+three generations, representing the past, present and future. I had to establish that tradition. I taught the
+Sunday school students who came to the Myeongsudae New Jesus Church, loving them sincerely and
+regarding them as the hope of my life. Some of them wanted to skip school and follow me around; this is
+because my mission was to pioneer the work of loving Cain. (060-200, 1972/08/17)
+28. The key leaders at the New Jesus Church in Pyongyang were Rev. Lee Ho-bin, Rev. Pak Jae-bong,
+and Rev. Han Jun-myeong. That church had a large membership, including several thousand students. It
+was a beautiful building and was well known. Whenever I came up to Pyongyang and visited that church,
+I was always welcome to take charge of teaching the students there. I was recognized as a good Sunday
+School teacher. I knew all the pastors and was popular among the students, so everyone wanted to invite
+me to their home. (441-271, 2004/03/06)
+29. I am well aware of the secrets of Rev. Lee Ho-bin, Rev. Han Jun-myeong and Rev. Pak Jae-bong of
+the New Jesus Church in Pyongyang. When I admonished them about their calling and their responsibility
+for God's Will, they could not answer me. I advised them not to do certain things that they were involved
+with. Hence, they feared me more than anyone. I knew all the hidden truths of the Old and New
+Testaments even as a high school student. In my visits to the church I became such a famous student
+leader that its thousands of Sunday school students asked me to give sermons. They were mesmerized by
+my words. When I left, they made such a crowd at the railroad station that the pastors arrived and formed
+a line in order to protect me. Therefore, the three pastors always listened to my advice. (463-059,
+2004/07/31) 

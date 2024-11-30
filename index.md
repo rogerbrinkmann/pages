@@ -47,6 +47,7 @@ permalink: /
         * [Section 1](/book3/chapter2/section1/index.md)
         * [Section 2](/book3/chapter2/section2/index.md)
         * [Section 3](/book3/chapter2/section3/index.md)
+        * [Section 4](/book3/chapter2/section4/index.md)
 * Book 4: Salvation through the Holy Marriage Blessing
 * Book 5: Expansion of the Providential Foundation and the Annual Mottoes
 * Book 6: The World Tours and the Global Mission
