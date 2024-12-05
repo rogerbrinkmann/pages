@@ -193,9 +193,7 @@ world and the physical world.
 
 11. Why did we take the name, Holy Spirit Association for the Unification of World Christianity?
 Because we had Christianity in our name, we were persecuted. But without it, we would have had to give
-up the Old Testament Age and the New Testament Age. Without the Old Testament Age, the New
-
-#### Testament Age could not have come.
+up the Old Testament Age and the New Testament Age. Without the Old Testament Age, the New Testament Age could not have come.  
 Since the Old Testament Age went wrong, the New Testament Age was needed. Without the New
 Testament Age, the Completed Testament Age could not have emerged. The New Testament Age came
 on the foundation of the Old Testament Age, and the Completed Testament Age came on the foundation

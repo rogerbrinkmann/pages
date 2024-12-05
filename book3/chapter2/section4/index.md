@@ -149,6 +149,7 @@ In mid-August, he also sent Rev. Lee Yo-han to Daegu. His plan was for Rev. Lee 
 church on the foundation laid by Missionary Gang. Our Daegu church took root gradually, and
 started holding services that gathered 30 to 40 new members, despite persecution and opposition
 from Christian churches.  
+
 11. During the early days, I led a single church. From that beginning, I gathered a few members and had
 them visit spiritually prepared people all over the nation. Among them was Missionary Gang Hyeon-sil,
 whom I sent to Daegu. Before she met me, she had been the young lady responsible for the Beomil-dong

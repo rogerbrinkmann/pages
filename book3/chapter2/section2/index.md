@@ -11,7 +11,8 @@ permalink: /book3/chapter2/section2
 
 #### Father's disciples
 
-### Section 2. A New Beginning in Busan Refugee life
+### Section 2. 
+#### A New Beginning in Busan Refugee life
 Upon arriving at Heukseok-dong, Seoul, True Father found his way to the home of Kwak No-pil,
 a fellow believer with whom he had been close when they both attended the New Jesus Church in
 Myeongsudae. Mr. Kwak, however, had already left for Busan. True Father unpacked his things
